@@ -5,7 +5,7 @@
 
 |サービス|リンク|
 |:-|:-|
-|Twitter|twitter.com/u/sinuture4620/|
+|Twitter|k[twitter.com/sinuture4620/]|
 
 ## おわりいりりいりりりり
 おうぃろ
