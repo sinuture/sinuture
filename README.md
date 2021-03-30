@@ -3,9 +3,6 @@
 
 ハンドネーム：sinuture（読み：しぬつれ）
 
-|サービス|リンク|
-|:-|:-|
-|Twitter|k[twitter.com/sinuture4620/]|
+[Twitter](twitter.com/sinuture4620/)
 
 ## おわりいりりいりりりり
-おうぃろ
